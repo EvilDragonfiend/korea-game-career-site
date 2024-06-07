@@ -34,7 +34,7 @@
 
 * [데이세븐](http://www.day7games.com/careers/mainView.ctv?lang=ko)
 
-* [라인 게임즈](https://careers.linecorp.com/ko/jobs?ca=All&ci=Seoul,Bundang&co=East%20Asia)
+* [라인 게임즈](https://recruit.line.games/notice)
 
 * [밸로프](https://www.valofe.com/career/notice)
 
